@@ -2,7 +2,7 @@
 - 👀 I’m interested in learning new skills and polishing my old skills to keep myself updated.
 - 🌱 I’m currently learning DATA SCIENCE.
 - 💞️ I’m looking to forward to work with DXC TECHNOLOGY as an ASSOCIATE PROFESSIONAL SOFTWARE ENGINEER. 
-- 📫 How to reach me: INSTAGRAM - https://www.instagram.com/i.am.subh/?hl=en
+- 📫 How to reach me: INSTAGRAM - https://www.instagram.com/suvimal._/
                       LinkedIn - https://www.linkedin.com/in/suvimalkundu/
 
 <!---
